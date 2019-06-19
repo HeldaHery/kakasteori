@@ -1,0 +1,2 @@
+# kakasteori
+belajar kakas
